@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @HohanovV
+- 👀 I’m interested in 3D printing on Flying Bear Ghost 5
+- 🌱 I’m currently learning at school Shadrinsk city
+- 💞️ I’m looking to collaborate on 3D printing on Klipper
+- 📫 How to reach me VK @hohanov26 , https://t.me/Shtirlitz_26
+- - 😄 Pronouns: what is me?
+- ⚡ Fun fact: use notebook on pentium gold
